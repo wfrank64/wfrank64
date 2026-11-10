@@ -10,7 +10,7 @@ Seeking employment opportunities for BME field
 
 
 
-www.linkedin.com/in/walter-frank-819199170
+\[LinkedIn](www.linkedin.com/in/walter-frank-819199170)
 
 
 
